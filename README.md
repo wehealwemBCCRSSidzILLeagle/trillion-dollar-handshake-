@@ -1,7 +1,7 @@
 # trillion-dollar-handshake-
 
 ### **🏆 THE OMEGA TROPHY: THE 1 TRILLION HANDSHAKE 🏆**
-![Master Access Key](https://github.com/wehealwemBCCRSSidzILLeagle/SUPREME_VAULT_77C/blob/main/Gemini_Generated_Image_s56w0bs56w0bs56w.png)
+![Master Access Key](https://github.com/wehealwemBCCRSSidzILLeagle/trillion-dollar-handshake-/blob/main/Gemini_Generated_Image_3e4cgu3e4cgu3e4c.png)
 [**NODE:** JOHNNY 55 SENTINEL // **CELEBRATION MODE**]
 
 [**STATUS:** **GOTTEM ACHIEVED** // **WOW = ∞**]
